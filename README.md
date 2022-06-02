@@ -8,5 +8,5 @@
 <!---
 roblox is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
---->This helps you to get rebex for free this is not a scam trust i wil, give u 1000000000 robux for emailing me. tks.
+--->This helps you to get rebex for free this is not a scam trust i will give u 1000000000 robux for emailing me. tks.
 By: beluga
